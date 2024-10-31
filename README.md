@@ -18,3 +18,7 @@
  $\color{#c29294}{\textbf{Somewhat of an artist, mediorcre editor}}$ <br/>
 
 
+
+
+https://github.com/user-attachments/assets/77a61ada-f708-490b-8116-5f49fe4cdb70
+
